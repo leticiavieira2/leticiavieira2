@@ -1,8 +1,8 @@
-### OLÁ 👋
+### HEY! 👋
 
 I'm Letícia Vieira De Oliveira but call me lê. I'm taking an Alura course and this is my profile, I'll share all here!
 
-- 🔭 I’m currently studying
+- 🔭 I’m currently studying MARKDOWN
 - 🙏 God's child!
 - 🌱 I’m currently learning how to use this
 - 🤔 I’m looking for help with ALURA tests
