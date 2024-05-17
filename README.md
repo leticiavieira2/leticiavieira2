@@ -10,3 +10,7 @@ I'm Letícia Vieira De Oliveira but call me lê. I'm taking an Alura course and 
 - 😄 Pronouns: SHE/HER
 - ⚡ Fun fact: this is my "PV".
 
+- !{}(https://media.tenor.com/3fwCvxVpeLAAAAAM/okay-and.gif)
+- 
+- 
+
